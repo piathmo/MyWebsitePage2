@@ -19,4 +19,7 @@ Being from Kansas City can seem lame to some, but if you're from here then you k
 ![image](https://user-images.githubusercontent.com/101791032/158884461-0e404129-aed5-410a-b81d-e4da16dd98ee.png)
 
 ## Common Mixup
-   ##### The Kansas City, Missouri & Kansas City, Kansas Beef
+   ##### The Kansas City, Missouri & Kansas City, Kansas 
+   If you're from here then you know there is a spoken rivaly between **KCMO** and **KCK**. Kansas City, Missouri was discovered *before* Kansas City, Kansas and named the famous name of "Kansas City" in 1889. KCMO started getting a lot of attention with tourists coming in and business starting to boom. KCK was then named "Kansas City" as well in order to gain more of the KCMO attraction. The funny thing is, you can actually see KCK from KCMO (and vice versa) if you're at the right spot.
+   
+   
