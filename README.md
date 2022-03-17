@@ -12,3 +12,7 @@ Being from Kansas City can seem lame to some, but if you're from here then you k
 + Wings Cafe - a locally owned food spot with two locations in the Kansas City are, they are known for their very detail sauce options
 + Kona Grill - a grill spot in Kansas City with the best sushi & best spicy mayo
 + Taco Express - a Mexican restaurant in South Kansas City, in my opinion, with the best tacos in Kansas City
+
+
+### Sports
+   ###### Kansas City has two professional sports teams - the Chiefs & The Royals 
