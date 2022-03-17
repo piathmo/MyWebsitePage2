@@ -16,3 +16,4 @@ Being from Kansas City can seem lame to some, but if you're from here then you k
 
 ### Sports
    ###### Kansas City has two professional sports teams - the Chiefs & The Royals 
+![image](https://user-images.githubusercontent.com/101791032/158884461-0e404129-aed5-410a-b81d-e4da16dd98ee.png)
