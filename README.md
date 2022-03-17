@@ -5,3 +5,10 @@ Being from Kansas City can seem lame to some, but if you're from here then you k
 
 *skyline of Downtown Kansas City*
 
+#### My Favorite Restaurants
++ KC Burgers - a Somali restaurant with an amazing mix of American and Somali food, it's also family owned!
++ Texas Toms - a redtaurnt chain with various food items from tacos to burgers to seafood, a good perk is that they are open until 3AM at most of their locations
++ Trezo Mare Restaurant & Lounge - an Italian restaurant in the Northern part of Kansas City, has a very nice luxurious but home style feel inside
++ Wings Cafe - a locally owned food spot with two locations in the Kansas City are, they are known for their very detail sauce options
++ Kona Grill - a grill spot in Kansas City with the best sushi & best spicy mayo
++ Taco Express - a Mexican restaurant in South Kansas City, in my opinion, with the best tacos in Kansas City
